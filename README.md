@@ -15,7 +15,7 @@ This specialization is aimed at helping you develop these powerful people and so
 
 - communicating productively and efficiently; 
 
--dealing with challenges, solving problems & implementing solutions.
+- dealing with challenges, solving problems & implementing solutions.
 
 The program is made up of 5 short courses that you can take in any order, followed by a final assessment course. Upon completing this specialization, you will have developed knowledge and demonstrated an understanding of these essential skills. 
 
